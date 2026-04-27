@@ -1,4 +1,4 @@
-
+fling things and people Scripts secure is the best fling things and people Script, featuring auto-upgrade and no cooldown. Safe and powerful for all
 
 
 
